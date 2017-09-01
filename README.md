@@ -1,4 +1,3 @@
 # Create Your Own Adventure
 
-Can you guide Lilly as she faces her forest adventure? See if your child can get the fairy dust! A *very* simple story suitable for a four- to five-year-old. Created for my granddaughter Samantha who is visiting this weekend. There's only a couple variables. There's no scoring in the story. I decided to publish it so parents of young children might be inspired to create their own simple stories. Rating this will make no sense unless you reach the best solution and then rate it in terms of standards for a young child. Worked wonderfully. Just the right length. But I did discover something important. At four, the best story has only two choices. So I need to go back and make a few changes. Three alternatives are too many for a child her age to process. Two is best. It will not need too many changes. But I'm happy that she sailed right through to get the fairy dust without any direction on my part.
-
+Can you guide Lilly as she faces her forest adventure? 
